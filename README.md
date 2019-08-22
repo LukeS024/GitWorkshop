@@ -10,3 +10,9 @@ Once your are done, save this file.
 
 Test
 sslkadfj;adfjalkdfjaskdjfasdlkfjaslkdfjasdfj;alksd
+
+Luke Schomburg
+
+i like dogs, basketball, and the color blue 
+
+To help me get a better understanding the computers and the advantages to knowing how to use them. 
